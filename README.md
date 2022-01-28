@@ -1,4 +1,4 @@
-### Hi there, I'm 𝑺𝒂𝒏𝒂 𝑹𝒂𝒏𝒋𝒊𝒕𝒉👋
+### Hi there, I'm Sana Ranjith👋
 
 <img align='right' src='https://github.com/Rishit-dagli/Rishit-dagli/blob/master/images/octocat-anime.gif' width='150"'>
 
