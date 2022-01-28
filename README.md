@@ -2,7 +2,7 @@
 
 <img align='right' src='https://github.com/Rishit-dagli/Rishit-dagli/blob/master/images/octocat-anime.gif' width='150"'>
 
-## I'm a 𝑪𝒂𝒍𝒍𝒊𝒈𝒓𝒂𝒑𝒉𝒆𝒓
+## I'm a 𝐋𝐞𝐚𝐫𝐧𝐞𝐫 𝐚𝐧𝐝 𝑪𝒂𝒍𝒍𝒊𝒈𝒓𝒂𝒑𝒉𝒆𝒓
 
 - 📫 Reach me at sanaranjith2003@gmail.com
 
